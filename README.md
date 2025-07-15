@@ -27,7 +27,7 @@ I am a Certified Scrum Master and Project Manager with over 5 years of experienc
 ### 📫 Let's Connect
 
 I'm always open to connecting with professionals and exploring new challenges.
-
+- 🔗 **Professional Landing Page:** [Your Future Landing Page Link Here](https://freddconsulting.github.io/web/)
 - 💼 **LinkedIn:** [https://www.linkedin.com/in/freddy-arevalo-276710120/](https://www.linkedin.com/in/freddy-arevalo-276710120/)
 - ⬆️ **Upwork:** [https://www.upwork.com/freelancers/~017e4ee42f1f86130a](https://www.upwork.com/freelancers/~017e4ee42f1f86130a)
 - 🏆 **Verified Credentials:** [https://www.credly.com/users/freddy-arevalo/badges](https://www.credly.com/users/freddy-arevalo/badges)
